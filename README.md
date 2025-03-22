@@ -12,3 +12,11 @@ We believe in ethical hacking as a way to strengthen cybersecurity. Our tools ar
 # Stay Connected :-
 
 Follow our repository and YouTube channel and Whatsapp community for the latest tools and updates. If you find our projects useful, don’t forget to ⭐ star this repository and contribute to the community!!...
+
+# join and subscribe 
+
+Whatsapp community 
+https://chat.whatsapp.com/G2hCkCzylra2OENEfhH8Os
+
+YouTube channel 
+https://www.youtube.com/@DHT-HACKERS_10
